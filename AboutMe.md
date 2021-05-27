@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IbGross
+- 👋 Hi, I’m @AbGross
 - 👀 I am new in this environment, and I’m interested in colaborative learning.
 - 🌱 Knowing the platform well is a prerequisite to knowing more about me. 
 - 💞️ I’m looking to collaborate on all that is done here. 
